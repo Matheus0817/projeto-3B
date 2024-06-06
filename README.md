@@ -9,3 +9,4 @@ utilizo esse espaço para os meus estudos
 
 ![](https://media1.tenor.com/m/ZCxwVKNGulcAAAAd/carlos-sumar%C3%A9.gif)
 
+
